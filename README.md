@@ -1,4 +1,4 @@
-a tesla egy szar es gabi szereti a faszt
+a tesla egy szar es gabi szereti es meg a faszt is
 
 
 
